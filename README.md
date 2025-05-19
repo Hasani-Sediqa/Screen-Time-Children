@@ -20,3 +20,6 @@
 😞 Excessive screen time can cause **mood swings, irritability, and sleep disturbances**.  
 ✅ Structured screen habits improve **learning, memory, and focus**.  
 🚀 Parents can balance screen use with **outdoor play, storytelling, and tech-free zones**.
+
+
+🔗 [Click here to Explore more](https://hasani-sediqa.github.io/Screen-Time-Children/index.html)
